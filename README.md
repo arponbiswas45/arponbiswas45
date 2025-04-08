@@ -33,9 +33,9 @@ Git & Open Source Contribution
 
 Email: arponbiswas4509@gmail.com
 
-LinkedIn: [Add your link here]
+LinkedIn: https://www.linkedin.com/in/arp%C3%B8%C5%88-b%C3%AEsw%C3%A2s-%C3%A3rj%C3%BB-a3723b354?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BY9TVczQGTsqXQ%2BWzRDmADg%3D%3D
 
-Facebook: [Add your link here]
+Facebook: https://www.facebook.com/arponbiswasarju129
 
 
 
@@ -50,7 +50,7 @@ BD Clean – Patuakhali
 
 DYDF – Patuakhali District
 
-বন্ধুমহল ব্লাড ডোনার সোসাইটি
+বন্ধুমহল ব্লাড ডোনার সোসাইটি - PPI Campus
 
 YouthNet Global - Patuakhali Sadar 
 
